@@ -1,6 +1,6 @@
 - 👋 Hi,My name is Satyam chauhan 
 - I'm a Student
-- you can reach to me vis Instagram  @gannu.here
+- you can reach to me via Instagram  @gannu.here
 - My Email satyamchauhan9656@gmail.com
 - linked In - https://www.linkedin.com/in/satyam088/
 - Discord - @gannu.here
